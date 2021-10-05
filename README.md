@@ -1,0 +1,1 @@
+Создание сайта на космическую тематику вместе с каналом от 0 до 1. Ссылка на канал - https://www.youtube.com/channel/UCE_w6FxGfRKH2fU76raVeog.
